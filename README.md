@@ -4,4 +4,4 @@ I dont ship many characters, if im using someone / a cosplay and i sit with you,
 --
 I use She/They mainly, it/its is welcome too. Im Eighteen, that doesnt give you the right to be weird. On rare occaisions, if im comfortable with you, I might playfully flirt, if that makes you uncomfy, then please tell me. PLEASE TELL ME IF ANYTHING I DO MAKES YOU UNCOMFORTABLE! I'LL TRY TO STOP<3 
 --
-. -- I am 18 years old! 16-22 Is the age range of the people I'd rather interact with. Please dont try to add me or get too close if you are 15 or under! I find it quite weird. (Unless we are already friends/moots!!) 
+I am 18 years old! 16-22 Is the age range of the people I'd rather interact with. Please dont try to add me or get too close if you are 15 or under! I find it quite weird. (Unless we are already friends/moots!!) 
